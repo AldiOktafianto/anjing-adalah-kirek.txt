@@ -1,0 +1,1 @@
+# anjing-adalah-kirek.txt
